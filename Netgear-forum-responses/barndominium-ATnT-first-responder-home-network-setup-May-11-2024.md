@@ -36,7 +36,7 @@ We will be using this for your internet connection since I am to the understandi
 
 **Suction Cup hangers/mounter (if installed indoors at window)**
 
-[https://www.amazon.com/HSTECH-Detectors-Suction-Beltronics-Detector/dp/B07XDZ6L24/ref=sr\_1\_5?adgrpid=1341405421214378&dib=eyJ2IjoiMSJ9.BY-6P0a-ZYg\_2ObGktkr1mJnglu3855w4e0JJEmB8bsXa8XvfOBcq3\_Ov\_U1eHo\_ZjnBCRlntVtE4x4nra35Q3IoD0FzRr4Yn8aRCJ9yiBUcEY9FdJmXhcu2q\_Q2cTTe-gBgTdEtthgOd85gclfOxt6ksfu2aCjsO0CKZ8gum84GFu-c7DJZUlAojijBhQasggw\_j1sQKDkJ3f7h2h14wnxrRMUKOSC2v4EDAQ7pmetN8L9nttv57y\_qdi409j3nJ8WtRWy2C6cgJBWRocH0Q9pLkbFAE4YmyYsndpOuwDU.difybcEgX-1bq-QiEExHCPYxT7m7bHvyBtUvjvPqSxY&dib\_tag=se&hvadid=83838119638142&hvbmt=be&hvdev=c&hvlocphy=89682&hvnetw=o&hvqmt=e&hvtargid=kwd-83838715365097%3Aloc-190&hydadcr=19108\_13418961&keywords=suction+cup+mounts&qid=1715426165&s=electronics&sr=1-5](https://www.amazon.com/HSTECH-Detectors-Suction-Beltronics-Detector/dp/B07XDZ6L24/ref=sr_1_5?adgrpid=1341405421214378&dib=eyJ2IjoiMSJ9.BY-6P0a-ZYg_2ObGktkr1mJnglu3855w4e0JJEmB8bsXa8XvfOBcq3_Ov_U1eHo_ZjnBCRlntVtE4x4nra35Q3IoD0FzRr4Yn8aRCJ9yiBUcEY9FdJmXhcu2q_Q2cTTe-gBgTdEtthgOd85gclfOxt6ksfu2aCjsO0CKZ8gum84GFu-c7DJZUlAojijBhQasggw_j1sQKDkJ3f7h2h14wnxrRMUKOSC2v4EDAQ7pmetN8L9nttv57y_qdi409j3nJ8WtRWy2C6cgJBWRocH0Q9pLkbFAE4YmyYsndpOuwDU.difybcEgX-1bq-QiEExHCPYxT7m7bHvyBtUvjvPqSxY&dib_tag=se&hvadid=83838119638142&hvbmt=be&hvdev=c&hvlocphy=89682&hvnetw=o&hvqmt=e&hvtargid=kwd-83838715365097%3Aloc-190&hydadcr=19108_13418961&keywords=suction+cup+mounts&qid=1715426165&s=electronics&sr=1-5)
+[https://a.co/d/91QSdWd](https://a.co/d/91QSdWd)
 
 Used to mount antenna on the inside window.
 
